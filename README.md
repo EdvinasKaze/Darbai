@@ -1,0 +1,1 @@
+Vykdau prakitinius darbus.
